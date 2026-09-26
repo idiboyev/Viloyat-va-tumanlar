@@ -1,1 +1,1 @@
-# Viloyat-va-tumanlar
+# Viloyat-va-tumanlar :: soon ::
